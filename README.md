@@ -1,0 +1,1 @@
+# stepic_3_6_10_part_reporitory
